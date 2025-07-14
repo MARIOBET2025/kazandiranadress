@@ -49,7 +49,7 @@
 
 ## 🔓 Hemen Üye Ol, Kazanmaya Başla!
 
-👉 [https://shortlinkapp.com/mariobet](https://shortlinkapp.com/mariobet)  
+👉 [Buradan üye ol!](https://pusulabet11.com) 
 🎯 İlk freespin’lerini şimdi kullan, fırsatları kaçırma!
 
 ---
