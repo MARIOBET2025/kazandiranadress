@@ -6,7 +6,7 @@
 
 # 🎯 MARİOBET – Bahisin ve Kazancın Yeni Adresi! 💰
 
-## 🔗 Mariobet Giriş
+## <a href="https://shortlinkapp.com/mariobet" title="Mariobet Giriş Adresi">🔗 MARIOBET GİRİŞ İÇİN TIKLA!</a>
 
 [![Mariobet Bonus Görseli](https://resmim.net/cdn/2025/07/14/TvGxrI.jpg)](https://shortlinkapp.com/mariobet)
 
